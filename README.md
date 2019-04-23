@@ -1,5 +1,5 @@
 # Hello-World
-maybe some strange ideas
+maybe some strange ideas.
 About myself:
 A chinese highschool student.
 Now I am preparing to go aboard to univercity.
